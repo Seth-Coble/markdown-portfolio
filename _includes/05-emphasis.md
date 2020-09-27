@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+**I have nunchuck skills, computer hacking skills, bow hunting skill. Girls only like guys with cool skills.** 
