@@ -1,1 +1,1 @@
-Cookbooks, Pencils, Stamps, and Salt
+- Cookbooks - Pencils - Stamps - Salt
